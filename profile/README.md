@@ -1,0 +1,1 @@
+The Norwegian Veterinary Institute is a biomedical research institute, and the national leading centre of expertise in biosecurity in fish and land animals. The aim of the Institute is to become Norway’s centre of preparedness for One Health.
